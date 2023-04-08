@@ -10,7 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on project
 - 
 - 💬 Ask me about anything
-- 📫 How to reach me: muratbozacı@gmail.com
+- 📫 How to reach me: muratborussia@gmail.com
 - 
 - ⚡ Fun fact: html-css-bootstrap
 
